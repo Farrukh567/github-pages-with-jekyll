@@ -1,3 +1,3 @@
-# Welcome to my blog
+# NOICE
 
-I'm glad you are here. I plan to talk about ...
+Now its mine
